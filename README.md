@@ -1,3 +1,10 @@
+Política de Privacidad – CineptiaIA
+
+Última actualización: 15 de diciembre de 2025
+
+Esta Política de Privacidad explica cómo CineptiaIA (“la app”, “nosotros”) recopila, usa y protege tu información cuando utilizas nuestra aplicación móvil.
+
+Si no estás de acuerdo con esta política, por favor no uses la app.
 1. Alcance
 
 Esta política aplica a:
